@@ -11,7 +11,7 @@ Tenho sólida vivência em todas as etapas do ciclo de desenvolvimento, com foco
 <br>
 
 ## 💼 Portfólio:
-[Visite meu portfólio](https://portfolio.jeffersonfreitas.dev)<br/>
+[Visite meu portfólio](https://portifolio.jeffersonfreitas.dev)<br/>
 <br>
 
 ## 🌐 Redes Sociais:
